@@ -1,4 +1,4 @@
-# 
+# professional NFT Scanner for nft trading bot | price-impact-analysis & metadata-parsing is the best nft trading bot, featuring price-impact-analysis and metadata-parsing. Fast,
 
 
 
